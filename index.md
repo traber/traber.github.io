@@ -8,3 +8,5 @@ Dr. B ist ein Intellektueller, welcher von den Nazis in Isolationshaft gehalten 
 * Manisch
 * Spielt Blindschach
 
+> Wenn ich zusammenrechne, wie viele Formulare ich ausgefüllt habe in diesen Jahren, Erklärungen bei jeder Reise, […] wie viele Stunden ich gestanden in Vorzimmern von Konsulaten und Behörden, vor wie vielen Beamten ich gesessen habe, […] wie viele Durchsuchungen an Grenzen und Befragungen ich mitgemacht, dann empfinde ich erst, wieviel von der Menschenwürde verlorengegangen ist in diesem Jahrhundert […].
+
